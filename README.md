@@ -1,2 +1,2 @@
 # nomehousestudios
-Nome House Studios — Digital Marketing Agency
+Nome House Studios — Royalty investigation and recovery for artists
